@@ -1,2 +1,0 @@
-# hokkyez
-tea
